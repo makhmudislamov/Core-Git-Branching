@@ -21,7 +21,7 @@ He stuck his head in the door, the color of the foliage was intense green, brown
 The smell of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-John met the Unicorn King who granted him magic powers.
+John met the Unicorn King there. The King was impressed by John's brave heart and curiosity. The Unicorn King said magic words that John didn understand but he felt strong feeling inside of him. He was granted magic powers - endless bravery and strong curious mind.
 The end.
 
 ## Cast
