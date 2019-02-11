@@ -17,7 +17,7 @@ John had heard the sound before, but today there was a new sound, sort of a cros
 He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar.
 
 Normally John would leave well enough alone, but he was worried that an animal might escape.
-He stuck his head in the door, the color of the foliage was intense green, brown and chartreuse, he called out a zoo keeper but got no response.
+He stuck his head in the door, the color of the foliage was intense green, brown and chartreuse, he called out a zookeeper Braus but got no response. Braus was feeding chimps and usually they make loud noise when Braus enters their cage.
 The smell of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
