@@ -17,11 +17,11 @@ John had heard the sound before, but today there was a new sound, sort of a cros
 He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar.
 
 Normally John would leave well enough alone, but he was worried that an animal might escape.
-He stuck his head in the door, the color of the foliage was intense green, brown and chartreuse, he called out a zookeeper but got no response.
+He stuck his head in the door, the color of the foliage was intense green, brown and chartreuse, he called out a zookeeper Braus but got no response. Braus was feeding chimps and usually they make loud noise when Braus enters their cage.
 The smell of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-John met the Unicorn King there. The King was impressed by John's brave heart and curiosity. The Unicorn King said magic words that John didn understand but he felt strong feeling inside of him. He was granted magic powers - endless bravery and strong curious mind.
+John met the Unicorn King there. The King was impressed by John's brave heart and curiosity. The Unicorn King said magic words that John didn understand but he felt strong feeling inside of him. Friendly Koala explained that John was granted magic powers - endless bravery and strong curious mind. 
 The end.
 
 ## Cast
